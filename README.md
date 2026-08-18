@@ -2,7 +2,7 @@
 
 I have successfully completed the **Ethical Issues in AI and Professional Ethics** and ""Ielts Preparation""offered through **Coursera**.
 
-This course helped me gain knowledge about ethical challenges in Artificial Intelligence, responsible AI practices, and professional ethics in technology.
+This courses helped me gain knowledge about ethical challenges in Artificial Intelligence, responsible AI practices, and professional ethics in technology and Ielts preparation
 
 ## 🔗 Links
 
